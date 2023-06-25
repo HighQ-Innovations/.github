@@ -1,6 +1,7 @@
-## Hi there 👋
+## Hi there👋, Welcome to HighQ Innovations 
 
-**Here are some ideas to get you started:**
+### We Design and Develop your business digitally.
+
 **We develop modern concepts to design and develop the**
 **interface design, web development to deliver them with**
 **eye-catching innovative ideas. We believe in effective,**
