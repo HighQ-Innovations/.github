@@ -9,5 +9,5 @@
 🙋‍♀️ Our team develops a long-term strategy to bring out 
 spark conversation with clients, and visibility to your company.
  
-🧙 Visit our official website [Markdown](https://highq.com.ng/)
+🧙 Visit our official Official [Website](https://highq.com.ng/)
 
